@@ -1,0 +1,1 @@
+# Primeri-Parcial-Filosofia
